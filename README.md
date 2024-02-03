@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @d2tactt
+- 👋 Hi, I’m @d2tactt you can call me dalila
 - 👀 I’m interested in coding duh
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on nothin
