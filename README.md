@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @d2tactt you can call me dalila
-- 👀 I’m interested in coding duh
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on nothin
-- 📫 How to reach me : ig= d2tact_
+- 📫 How to reach me : d.attmn269@gmail.com
 - 😄 Pronouns: she her
 - ⚡ Fun fact: im 14
 
